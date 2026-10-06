@@ -1,1 +1,0 @@
-# gizemesra.github.io
