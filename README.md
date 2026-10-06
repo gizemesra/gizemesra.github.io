@@ -1,1 +1,1 @@
-# gizemesra.github.ip
+# gizemesra.github.io
